@@ -1,0 +1,1 @@
+# Alqoritmika_tapsiriq2
